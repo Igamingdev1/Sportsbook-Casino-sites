@@ -1,4 +1,4 @@
-## Betting platforms
+## Betting platforms (Sports & Casino)
 
 I am a developer with a passion for creating engaging and innovative online experiences. 
 I am passionate about revolutionizing the online betting experience and firmly believe that my casino betting sites and sportsbook will resonate with users seeking both entertainment and an opportunity to win.
